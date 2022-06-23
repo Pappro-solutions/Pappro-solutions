@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Pappro-solutions
 - 👀 I’m interested in Marketing services 
 - 🌱 I’m currently learning about the business 
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on marketing y
 - 📫 How to reach me pappro.seo@gmail.com
 
 <!---
